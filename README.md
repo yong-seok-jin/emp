@@ -6,5 +6,5 @@
 ######당당히 마주칠수 있어요
 ######언젠가 나 그벽을 넘어서
 ######저 하늘을 높게 날을수 있어요
-#####![사진](http://images.battlecomics.co.kr/board/213600/image-boardid_213600-cut_1-w_1080-h_1920-t_20151231002946.png)
-#####[동영상](https://youtu.be/4hIw4iQ2SmI)
+#####![사진](http://cfile27.uf.tistory.com/image/221AE046545C491B1E7DF3)
+#####[동영상](https://youtu.be/wsPNrRYpWrE)
